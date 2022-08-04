@@ -1,3 +1,1 @@
-# sultanbaevs.github.io
-
-https://sultanbaevs.github.io/
+# [sultanbaevs.github.io](https://sultanbaevs.github.io/)
